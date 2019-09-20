@@ -1,0 +1,2 @@
+# levapatelsamajnerul
+www.levapatelsamajnerul.org
